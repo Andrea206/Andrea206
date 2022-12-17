@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is Andrea Moncada.
+My name is Andrea!
 Pronouns: she/her 
 
 <!--
